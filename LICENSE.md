@@ -1,4 +1,4 @@
-# 
+# Enhance YNAB for PC | YNAB for Windows with rare YNAB for PC | YNAB for Windows Extension | budgeting + cash-flow-tracking, the #1 extension. Includes budgeting and
 
 
 
